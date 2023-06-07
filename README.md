@@ -1,6 +1,3 @@
-# Objetivos del repositorio
-
-## Notas
-
+## Hola mi nombre es Sergio y siempre estoy dispuesto a ayudar
 
 

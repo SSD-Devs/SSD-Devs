@@ -7,7 +7,7 @@ En 2019 empiezo a estudiar Desarrollo web. Aunque era mi hobby, decido dar un pa
 
 En 2020 empiezo a crear proyectos particulares y algunos colaborativos ,aunque con síndrome del impostor.
 
-Actualmente sigo con síndrome del impostor, pero con mas aprendizaje y más ganas :muscle:
+Actualmente sigo con síndrome del impostor :clap: , pero con mas aprendizaje y más ganas :muscle:
 
 
 

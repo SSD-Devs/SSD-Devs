@@ -1,4 +1,4 @@
-# Objetivos de la repositorio
+# Objetivos del repositorio
 
 ## Notas
 
